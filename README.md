@@ -8,7 +8,7 @@
 
 ## 📞 Contact Information
 
-- 📧 Email: [chauhanshiven54@gmail.com](mailto:chauhanshiven54@gmail.com)
+- 📧 Email: [shivu.9r@gmail.com](mailto:shivu.9r@gmail.com)
 - 📱 Phone: +91 78761 98936
 - 🌍 Location: Bilaspur, Himachal Pradesh, India
 - 💼 LinkedIn: [shiven-chauhan](https://www.linkedin.com/in/shiven-chauhan-63334b227)
